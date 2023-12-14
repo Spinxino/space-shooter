@@ -1,1 +1,1 @@
-![ezgif-2-c40db44ff4](https://user-images.githubusercontent.com/32494798/183344303-4009b0bc-6b0c-481a-a418-5d1337833bc2.gif)
+https://github.com/Spinxino/space-shooter/assets/32494798/c8157d02-aa70-48d2-a967-ecdf6cae5d10
